@@ -47,6 +47,20 @@ Navegação: Uso de botões de navegação para alternar entre visões.
 
 ___________________________________________________________________________________
 
+<img width="1427" height="793" alt="image" src="https://github.com/user-attachments/assets/ee0b1f42-849e-4c95-9eba-e9cb64c2b14c" />
+
+_______________________________________________________________________________________
 
 
 <img width="1424" height="786" alt="image" src="https://github.com/user-attachments/assets/56d35ab2-3db3-4513-a103-d108e0fcd932" />
+
+_______________________________________________________________________________________
+
+<img width="1424" height="799" alt="image" src="https://github.com/user-attachments/assets/5271192f-878f-4e51-aff5-5bf2d136e0ac" />
+
+_______________________________________________________________________________________
+
+
+<img width="1424" height="786" alt="image" src="https://github.com/user-attachments/assets/985cd685-1178-4685-8bcd-12cd31f94ff7" />
+
+
